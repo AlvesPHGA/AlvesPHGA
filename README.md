@@ -10,7 +10,7 @@ ___________________________________________
 ___________________________________________
 
 ## Formação
-Recem formado em <strong>Gestão da Tecnologia da Informação</strong> na istituição <strong>Fatec Itu</strong> (2016 - 2020)
+Formado em <strong>Gestão da Tecnologia da Informação</strong> na istituição <strong>Fatec Itu</strong> (2016 - 2020)
 
 ___________________________________________
 
